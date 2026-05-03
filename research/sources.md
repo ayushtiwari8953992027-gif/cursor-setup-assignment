@@ -98,6 +98,28 @@ https://youtu.be/OSikNZ9P4oU?si=v6O2frtcZK6A-NBq
 14th April
 The real unlock with AI isn’t complexity—it’s speed: extract one core feature, ship a simple MVP fast, and validate with real users before overbuilding. 
 
+Nathan Latka
+
+https://www.linkedin.com/posts/nathanlatka_this-is-actually-how-you-make-lots-of-using-activity-7454515930782658560-qVKz?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+29th April
+The real money in AI isn’t in selling AI—it’s in amplifying niche, high-demand businesses with small teams by using AI to scale operations, marketing, and distribution around an already proven product-market fit.
+
+https://www.linkedin.com/posts/nathanlatka_podcast-did-14k-downloads-april-13th-guess-activity-7452366804720455680-WQZU?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+27th april
+Media brands compound through long-tail distribution—consistent output, strong perspective, and long-term commitment turn every past asset into ongoing growth.
+
+https://www.linkedin.com/posts/nathanlatka_just-finished-my-saastock-main-stage-keynote-activity-7449471718450073600-p1sn?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+20th April
+The winners in AI SaaS aren’t building features—they’re compounding defensible moats through proprietary data, distribution, and infrastructure, with AI acting as the accelerant, not the foundation.
+
+https://youtu.be/piBa9lNplFs?si=s-RSj0CHElaNLvu0
+12 June , 2025
+The leverage in AI today comes from combining simple agent workflows, viral distribution, and proven growth tactics—not reinventing growth, but executing faster and smarter on what already works.
+
+
+
+
+
 
 
 

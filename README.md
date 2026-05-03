@@ -67,3 +67,11 @@ Mark Lou
 
 He embodies fast execution—turning simple ideas into real products quickly, validating them in the market, and prioritizing shipping over perfection.
 
+Nathan Latka
+3 linkedin posts
+1 youtube video
+
+He is relentlessly data-driven—breaking down real SaaS growth into measurable tactics, proven case studies, and repeatable playbooks rather than theory.
+
+
+
