@@ -3,3 +3,4 @@ https://offers.tkkader.com/unstoppable-ai-saas-gtm-advisory-programs
 https://martellmethod.com/?utm_source=linkedin&utm_medium=social+media&utm_campaign=bio&utm_id=main_subscription
 https://www.founderstack.pro/
 https://marclou.com/
+https://close.com/author/steli-efti

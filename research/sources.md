@@ -116,7 +116,26 @@ https://youtu.be/piBa9lNplFs?si=s-RSj0CHElaNLvu0
 12 June , 2025
 The leverage in AI today comes from combining simple agent workflows, viral distribution, and proven growth tactics—not reinventing growth, but executing faster and smarter on what already works.
 
+Stelli Efti
 
+3rd Dec, 2025
+https://www.linkedin.com/posts/steliefti_more-info-more-sales-is-a-convenient-lie-activity-7401294041386106880-yjXS?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+Insights
+More information doesn’t close deals—buyers convert when a trusted human reduces uncertainty with clarity, conviction, and guidance at the moment of decision.
+
+https://www.linkedin.com/posts/steliefti_im-going-to-say-something-you-may-not-like-activity-7374056205989715968-Yu4y?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+10th October, 2025
+Insights
+Sales isn’t inherently complex—the real barrier is psychological friction, where fear and discomfort block consistent execution, even though those same feelings signal high-impact actions.
+
+https://www.linkedin.com/posts/steliefti_subject-we-fucked-up-that-was-the-actual-activity-7315410054692663297-lv19?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+15th May, 2025
+Insights
+When deals break, process fixes can wait—own the mistake fast, lead with honesty, and prioritize the customer’s experience, because trust salvaged is often more valuable than revenue lost.
+
+https://youtu.be/c31sCXaz-Xo?si=BFwzrNAr8u_Wd8zu
+14 Aug, 2025
+Success isn’t about getting in early—it’s about compounding proof through building fast, talking to users, and staying relentlessly resilient until your traction becomes undeniable.
 
 
 

@@ -73,5 +73,11 @@ Nathan Latka
 
 He is relentlessly data-driven—breaking down real SaaS growth into measurable tactics, proven case studies, and repeatable playbooks rather than theory.
 
+Steli Efti
+3 linkedin posts
+1 youtube video
+
+He embodies relentless execution—prioritizing building, talking to customers, and moving fast with resilience over theory or credentials.
+
 
 
