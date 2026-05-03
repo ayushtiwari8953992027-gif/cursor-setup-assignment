@@ -42,3 +42,9 @@ What I Collected
 
 Why I Chose Him
 I chose Rob Walling because he is an experienced SaaS founder who shares practical, real-world insights on growth and customer acquisition. 
+
+TK Kader
+3 linkedin posts
+1 youtube video
+
+I chose T.K. Kader because he operationalizes growth into clear, repeatable GTM systems—especially for turning service-based insights and data into scalable AI/SaaS revenue streams rather than just tactics.
