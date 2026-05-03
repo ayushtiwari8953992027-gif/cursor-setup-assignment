@@ -79,5 +79,15 @@ Steli Efti
 
 He embodies relentless execution—prioritizing building, talking to customers, and moving fast with resilience over theory or credentials.
 
+Aaron Ross
+3 linkedin posts
+1 youtube video
+
+He focuses on timeless sales principles—like specialization, repeatable pipeline generation, and system-driven growth—while acknowledging that execution must be adapted, not copied, in today’s dynamic market.
+
+
+
+
+
 
 

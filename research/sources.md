@@ -137,6 +137,27 @@ https://youtu.be/c31sCXaz-Xo?si=BFwzrNAr8u_Wd8zu
 14 Aug, 2025
 Success isn’t about getting in early—it’s about compounding proof through building fast, talking to users, and staying relentlessly resilient until your traction becomes undeniable.
 
+Aaron Ross
+
+https://www.linkedin.com/posts/aaronross_most-revenue-teams-arent-stuck-theyre-activity-7395383537727664128-rH3Q?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+6th October, 2025
+Revenue stagnation isn’t a tactics problem but a perception problem—teams stay stuck by chasing illusions (metrics, tools, blame) instead of confronting reality, taking ownership, and building systems that create genuine, compounding progress.
+
+https://www.linkedin.com/posts/aaronross_the-talk-about-everything-mantra-has-become-activity-7393923487884587008-006i?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+3rd October, 2025 
+Over-verbalizing doesn’t always deepen connection—real emotional intelligence is knowing when words clarify and when silence, presence, and subtle cues do the work better.
+
+https://www.linkedin.com/posts/aaronross_first-look-at-chapter-2-from-income-operating-activity-7391531628751380480-x3ip?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+1st October, 2025
+The Income Flywheel shows that real financial leverage comes from a loop—earned income funds skill-building, skill-building increases earning power, and both feed investments that compound into long-term independence.
+
+https://youtu.be/jjuFbUx1Jhk?si=sbAu-9IwW2voAZzU
+25 feb, 2025
+Predictable revenue isn’t built by copying playbooks—it comes from adapting timeless principles (like specialization, customer focus, and repeatable lead systems) to your own context, because in today’s noisy market, every company must find its own path to what works. 
+
+
+
+
 
 
 
