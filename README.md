@@ -85,6 +85,12 @@ Aaron Ross
 
 He focuses on timeless sales principles—like specialization, repeatable pipeline generation, and system-driven growth—while acknowledging that execution must be adapted, not copied, in today’s dynamic market.
 
+Guillaume-Moubeche
+3 linkedin posts
+1 youtube video
+
+He represents scrappy, zero-budget growth—proving you can build millions in revenue by leveraging direct outreach, community-driven trust, and simple execution instead of paid marketing.
+
 
 
 

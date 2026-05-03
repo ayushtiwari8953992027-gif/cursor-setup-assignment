@@ -155,6 +155,23 @@ https://youtu.be/jjuFbUx1Jhk?si=sbAu-9IwW2voAZzU
 25 feb, 2025
 Predictable revenue isn’t built by copying playbooks—it comes from adapting timeless principles (like specialization, customer focus, and repeatable lead systems) to your own context, because in today’s noisy market, every company must find its own path to what works. 
 
+Guillaume Moubeche
+https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_mckinseys-ai-boss-jumped-ship-to-run-a-2b-activity-7455299182266982400-nWGD?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+30th april
+real AI leverage isn’t in hype or SaaS playbooks—it’s in owning infrastructure, data, and model training, where operators with both technical depth and strategic clarity will dominate the next cycle.
+
+https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_ive-invested-millions-of-in-secondaries-activity-7450070643108229120-WQ7m?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+20th april
+The thesis is that Anthropic is outperforming OpenAI not through consumer scale but via high-margin, enterprise-driven growth—making it a stronger long-term compounding bet despite elevated valuations.
+
+https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_i-was-raised-thinking-that-money-was-something-activity-7447908246373322752-lB35?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+13th april
+Wealth isn’t about complexity—it’s about clarity: avoid engineered products, align incentives, and focus on simple, compounding assets you fully understand.
+
+https://youtu.be/WUw7BtR3I2U?si=ovRBA4GPvlhBFKw4
+25th april, 2024
+You don’t need capital to get customers—you need proximity to problems, direct conversations, and simple, trust-first outreach that converts interest into early traction.
+
 
 
 
