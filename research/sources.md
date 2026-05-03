@@ -80,4 +80,27 @@ https://youtu.be/H9YVvRkZnCo?si=rCcJha4KL_80N8VA
 2nd Feb
 The emerging SaaS shift isn’t just AI—it’s founders reclaiming control over margins and data by moving toward self-hosted, open-source, and infrastructure-first models. 
 
+Mark Lou
+
+https://www.linkedin.com/posts/marclouvion_i-spent-the-last-few-days-away-from-work-activity-7452009001388625920-Bcty?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+26th April
+The post reveals that real fulfillment comes from building, not metrics—while growth, scale, and obsession reshape identity in ways that require conscious recalibration.
+
+https://www.linkedin.com/posts/marclouvion_the-next-generation-of-solo-entrepreneurs-activity-7435704507528859648-uXsg?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+26th March
+The next wave of solo founders will win not through technical depth but through speed, problem clarity, and distribution leverage—using AI and no-code to out-execute traditional builders.
+
+https://www.linkedin.com/posts/marclouvion_where-do-i-start-for-a-big-part-of-my-activity-7434682789700198401-OZR7?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+March
+The journey shows that consistent building and sharing—not fitting in—can compound into unexpected success, where belonging, audience, and income emerge as byproducts of execution.
+
+https://youtu.be/OSikNZ9P4oU?si=v6O2frtcZK6A-NBq
+14th April
+The real unlock with AI isn’t complexity—it’s speed: extract one core feature, ship a simple MVP fast, and validate with real users before overbuilding. 
+
+
+
+
+
+
 

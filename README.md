@@ -60,3 +60,10 @@ Simon Hoiberg
 1 youtube video
 
 His thinking aligns with where SaaS is actually heading—toward ownership, control, and high-margin systems—focusing on self-hosted and open-source models instead of blindly relying on big tech platforms.
+
+Mark Lou
+3 linkedin posts
+1 youtube video
+
+He embodies fast execution—turning simple ideas into real products quickly, validating them in the market, and prioritizing shipping over perfection.
+
