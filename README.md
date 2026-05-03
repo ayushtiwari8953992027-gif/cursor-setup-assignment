@@ -48,3 +48,9 @@ TK Kader
 1 youtube video
 
 I chose T.K. Kader because he operationalizes growth into clear, repeatable GTM systems—especially for turning service-based insights and data into scalable AI/SaaS revenue streams rather than just tactics.
+
+Dan Martell
+3 Linkedin posts
+1 youtube video
+
+He cuts through AI hype and focuses on monetizable opportunities—prioritizing models that directly tie to revenue, cost savings, and scalable execution rather than surface-level trends.

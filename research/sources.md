@@ -42,3 +42,25 @@ SaaS growth often looks healthy on the surface, but without repeatable GTM syste
 https://youtu.be/FeYNModYfeM?si=Ptuaz-emHpJJjP33 - 19 April
 Insights
 The real leverage in AI + SaaS isn’t building standalone products, but monetizing proprietary service data through micro-SaaS layers that drive recurring revenue, higher margins, and deeper client retention.
+
+Dan Martell
+https://www.linkedin.com/posts/dmartell_i-lie-to-myself-every-morning-i-look-in-activity-7456607148823920640-Y_cm?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+3rd May
+Insights
+The core idea: self-perception acts as a performance lever—by deliberately shaping your internal narrative, you override external signals and create a psychological state that drives better execution, consistency, and outcomes.
+
+https://www.linkedin.com/posts/dmartell_35-lessons-from-selling-three-businesses-activity-7456228974793248768-7val?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+2nd May
+Insights
+Success isn’t a single breakthrough but a compounding system of mindset, standards, relationships, and consistent execution—where self-discipline and long-term thinking quietly outperform talent and luck.
+
+https://www.linkedin.com/posts/dmartell_youre-not-having-a-midlife-crisis-yet-activity-7455896287251451904-t_B-?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+1st May
+Insights
+The real risk isn’t burnout from building—it’s identity over-indexing on achievement, where success compounds externally but collapses internally without systems that develop the person alongside the business.
+
+https://youtu.be/K8Ros5RhJW4?si=TMrRrv9GzShEknab
+30th April
+The real opportunity in AI isn’t chasing hype ideas, but building solutions that directly tie to revenue or cost savings—because businesses pay for outcomes, not tools.
+
+
