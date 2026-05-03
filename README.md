@@ -34,3 +34,11 @@ restarted cursor and then it started showing the command as clone repository
 ##FINAL REPOSITORY LINK 
 https://github.com/ayushtiwari8953992027-gif/cursor-setup-assignment.git
 
+Rob Walling
+
+What I Collected
+3 recent LinkedIn posts
+1 YouTube video transcript
+
+Why I Chose Him
+I chose Rob Walling because he is an experienced SaaS founder who shares practical, real-world insights on growth and customer acquisition. 
