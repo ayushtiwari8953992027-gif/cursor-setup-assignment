@@ -91,6 +91,9 @@ Guillaume-Moubeche
 
 He represents scrappy, zero-budget growth—proving you can build millions in revenue by leveraging direct outreach, community-driven trust, and simple execution instead of paid marketing.
 
+Jason Lemkin
+He cuts through SaaS theory with operator-level truth—highlighting how friction, pricing games, and poor customer experience quietly kill growth, even in otherwise strong products.
+
 
 
 

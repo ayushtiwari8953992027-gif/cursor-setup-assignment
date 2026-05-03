@@ -4,3 +4,4 @@ https://martellmethod.com/?utm_source=linkedin&utm_medium=social+media&utm_campa
 https://www.founderstack.pro/
 https://marclou.com/
 https://close.com/author/steli-efti
+https://saastrannual.com/

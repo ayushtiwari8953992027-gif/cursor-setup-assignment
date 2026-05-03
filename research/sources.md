@@ -172,6 +172,25 @@ https://youtu.be/WUw7BtR3I2U?si=ovRBA4GPvlhBFKw4
 25th april, 2024
 You don’t need capital to get customers—you need proximity to problems, direct conversations, and simple, trust-first outreach that converts interest into early traction.
 
+Jason Lemkin
+https://www.linkedin.com/posts/jasonmlemkin_22-cool-things-to-do-at-saastraiannualcom-activity-7456436104314150912-YdZP?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+3rd May
+The competitive edge is shifting from learning AI to deploying it live—founders who build and operationalize agents in real workflows will dominate those still consuming content.
+
+https://www.linkedin.com/posts/jasonmlemkin_why-you-dont-really-want-to-vibe-code-it-activity-7455711330210340866-aRgx?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+1st may
+The post reframes “vibe coding” as a leverage tool, not a replacement for real systems—arguing that while AI makes building easy, reliability, edge cases, and maintenance make most business-critical software better bought than built, following a 90/10 rule of build for advantage, buy for stability.
+
+https://www.linkedin.com/posts/jasonmlemkin_the-1-thing-to-understand-about-ai-sdrs-activity-7454986553602494464-GWnB?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+30th april
+AI SDRs don’t create growth—they amplify it, so without a proven human playbook, automation just scales inefficiency (10×0 = 0).
+
+https://youtu.be/bIQpzhiJ1Cw?si=kjNy2MguADxp8onf
+5th march, 2025
+SaaS growth is being killed by friction—especially around buying, using, and leaving—because companies optimized for short-term retention and revenue extraction instead of customer trust and ease. 
+
+
+
 
 
 
