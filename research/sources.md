@@ -63,4 +63,21 @@ https://youtu.be/K8Ros5RhJW4?si=TMrRrv9GzShEknab
 30th April
 The real opportunity in AI isn’t chasing hype ideas, but building solutions that directly tie to revenue or cost savings—because businesses pay for outcomes, not tools.
 
+Simon Hoiberg
+https://www.linkedin.com/posts/simonhoiberg_the-founders-who-say-ai-is-overhyped-are-activity-7456619659019157504-yZEy?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+3rd May
+Founders who think AI is overhyped are underutilizing it—real leverage comes when AI is embedded into workflows and systems, not used as a one-off productivity tool.
+
+https://www.linkedin.com/posts/simonhoiberg_a-lot-of-saas-founders-are-still-building-activity-7456348995385307136-8k0_?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+4th may
+Modern SaaS doesn’t scale through headcount but through leverage—solving problems with systems (rules, automation, agents) first, and only adding people where human judgment is truly irreplaceable.
+
+https://www.linkedin.com/posts/simonhoiberg_using-ai-for-content-is-fine-using-ai-for-activity-7455890622575620096-7Obc?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpR01YBEYz6IrqPim73AeJKAjZ-PqXyPuA
+1st May
+AI in content is incremental, but AI in operations is multiplicative—embedding it into decision-making, workflows, and execution systems creates compounding leverage that separates scalable operators from everyone else.
+
+https://youtu.be/H9YVvRkZnCo?si=rCcJha4KL_80N8VA
+2nd Feb
+The emerging SaaS shift isn’t just AI—it’s founders reclaiming control over margins and data by moving toward self-hosted, open-source, and infrastructure-first models. 
+
 

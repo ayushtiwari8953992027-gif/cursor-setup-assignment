@@ -54,3 +54,9 @@ Dan Martell
 1 youtube video
 
 He cuts through AI hype and focuses on monetizable opportunities—prioritizing models that directly tie to revenue, cost savings, and scalable execution rather than surface-level trends.
+
+Simon Hoiberg
+3 Linkedin posts
+1 youtube video
+
+His thinking aligns with where SaaS is actually heading—toward ownership, control, and high-margin systems—focusing on self-hosted and open-source models instead of blindly relying on big tech platforms.
