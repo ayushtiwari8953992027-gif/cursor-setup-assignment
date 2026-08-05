@@ -20,3 +20,17 @@ Cold Outreach Key Patterns
 5. Personalization
 - Light personalization works best at scale
 - Over-personalization is inefficient
+
+## Common Patterns Across Experts
+
+• Narrow ICP
+
+• Repeatable GTM
+
+• AI as leverage
+
+• Positioning before volume
+
+• Personalization over generic outreach
+
+• Measure outcomes instead of activity
