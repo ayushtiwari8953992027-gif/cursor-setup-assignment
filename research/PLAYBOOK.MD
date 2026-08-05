@@ -2,6 +2,9 @@
 
 # SOP
 
+## Research Methodology
+Recommendations included in this playbook were selected only when they were supported by multiple experts or could be reasonably derived from recurring themes across the research. Where experts recommended different approaches, I evaluated the trade-offs and deliberately chose the approach that best aligned with the objective of building a repeatable cold outreach pipeline. Ideas that were highly context-specific or insufficiently supported were intentionally excluded.
+
 ## 1. Define Your Ideal Customer Profile (ICP)
 ##Define a narrow Ideal Customer Profile before launching outreach.
 
